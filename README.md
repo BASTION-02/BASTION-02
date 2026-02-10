@@ -13,3 +13,7 @@ $${\color{purple} | \ | \ | \ | \ | \ | \ |}$$
 
 <img src="https://github.com/user-attachments/assets/ed8f9495-82f1-4874-aac5-88bce360aa8c" width="1400"/>
 
+<img src="https://github.com/user-attachments/assets/2d0f5e6b-780d-4b7d-9848-b68d6e63f8f4" width="200" height=100/>
+<img src="https://github.com/user-attachments/assets/43578e1c-d15d-4b43-9cc3-ec002cd0261d" width="200" height=100/>
+<img src="https://github.com/user-attachments/assets/0379c894-642f-4d92-9de8-ba2795defde2" width="200" height=100/>
+<img src="https://github.com/user-attachments/assets/0762fbbb-47e6-4b13-ba83-bcc1c24cf072" width="200" height=100/>
