@@ -1,16 +1,15 @@
-## Hi there 👋
+##  -  : welcome to the azur-alt !
+![sodikken-hey-there](https://github.com/user-attachments/assets/7beab300-8ee8-4ce3-b793-7abdeaed1e6c)
 
-<!--
-**BASTION-02/BASTION-02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+$${\color{gray}[] \ ' \ ^ \ this \ is \ my \ spam \ follow \ account, \ you \ can \ find \ my \ main \ to \ the \ left ... ←}$$
+$${\color{gray}[] \ ' \ ^ \ i \ would \ appreciate \ if \ you \ follow \ me \ on \ my \ main!}$$
+$${\color{pink} | \ | \ | \ | \ | \ | \ |}$$
+$${\color{orange} | \ | \ | \ | \ | \ | \ |}$$
+$${\color{lightyellow} | \ | \ | \ | \ | \ | \ |}$$
+$${\color{lightgreen} | \ | \ | \ | \ | \ | \ |}$$
+$${\color{lightblue} | \ | \ | \ | \ | \ | \ |}$$
+$${\color{purple} | \ | \ | \ | \ | \ | \ |}$$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://github.com/user-attachments/assets/ed8f9495-82f1-4874-aac5-88bce360aa8c" width="1400"/>
+
