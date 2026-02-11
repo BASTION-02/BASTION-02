@@ -1,4 +1,4 @@
-##  -  : welcome to the azur-alt !
+##  -  : welcome to the spam follow account
 ![sodikken-hey-there](https://github.com/user-attachments/assets/7beab300-8ee8-4ce3-b793-7abdeaed1e6c)
 
 
